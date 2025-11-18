@@ -1,0 +1,1 @@
+# PingPlotter-Pro-No-Trial
